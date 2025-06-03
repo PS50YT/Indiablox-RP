@@ -7,6 +7,20 @@
 Premium 65rbx/lifetime<br>
 Donation 15rbx/lifetime<br>
 Private Servers 10rbx/month</i><br></p>
+
+```xml
+Update 1.22.2
+lastest update-26March2025
+ ```
+<h2 id="C1">New Updates</h2>
+
+```xml
+V2.0.0
+Coming-5June2025
+ ```
+
+V2 release soon with remake of the game which makes game better and smooth for mobiles. Train 🚂, remove waste object and better roleplay.
+
 <h2 id="C4">Rules</h2>
 1> No religious conversation🛐🚫<br>
 2> No abusive words📃🚫<br>
