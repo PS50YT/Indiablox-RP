@@ -8,3 +8,10 @@ Premium 65rbx/lifetime<br>
 Donation 15rbx/lifetime<br>
 Private Servers 10rbx/month</i><br></p>
 <h2 id="C4">Rules</h2>
+1> No religious conversation<br>
+2> No abusive words<br>
+3> Be proud and respect to India🇮🇳<br>
+4> Don't make disrespect to anyone<br>
+5> Don't break rules<br>
+6> Fundamental rights to everyone<br>
+7> Justice not be wrong 
