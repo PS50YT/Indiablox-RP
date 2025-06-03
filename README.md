@@ -3,5 +3,8 @@
 <br>
 <p>Indiablox is a Roblox game based on India. They having Indian vehicles🚗, houses🏠, places🗺️ and cities🌆. You can own house🏠, take jobs🏢, ride Indian Railways train🚆and buses🚍, explore world🌏, etc.
 
-<i><b>All Membership</b><br></p>
+<i><b>All Membership</b>
+Premium 65rbx/lifetime
+Donation 15rbx/lifetime
+Private Servers 10rbx/month</i><br></p>
 <h2 id="C4">Rules</h2>
